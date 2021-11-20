@@ -1,6 +1,6 @@
 # My Favorite Electronic Music Sets
 
->Jungle / Liquid DnB
+> **Jungle / Liquid DnB**
 
 LTJ Bukem: https://www.youtube.com/watch?v=P3xvBZ1Or0Y&t=2229s&ab_channel=dr0elf 
 
@@ -22,7 +22,7 @@ A Guy Called Gerald: https://www.youtube.com/watch?v=rdk9a88sACs&t=1330s&ab_chan
 
 A Guy Called Gerald: https://www.youtube.com/watch?v=Av7LtWwdIME&ab_channel=OldSchoolMixTapes
 
-> Tech House / House / Lofi-House / Acid House
+> **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
 
