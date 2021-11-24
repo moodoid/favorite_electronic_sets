@@ -22,6 +22,8 @@ A Guy Called Gerald: https://www.youtube.com/watch?v=rdk9a88sACs&t=1330s&ab_chan
 
 A Guy Called Gerald: https://www.youtube.com/watch?v=Av7LtWwdIME&ab_channel=OldSchoolMixTapes
 
+Guy Gerber: https://www.youtube.com/watch?v=J0tGubH9ZyM&t=4392s&ab_channel=BoilerRoom
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
