@@ -56,6 +56,8 @@ Moodymann: https://www.youtube.com/watch?v=iNLR-EMugb4&t=1458s&ab_channel=LucasM
 
 Omar S: https://www.youtube.com/watch?v=hhT8XIf2q1k&t=1372s&ab_channel=JONCASEYPRODUCTIONS
 
+Eris Drew: https://www.youtube.com/watch?v=EDiN60ORcA0&t=1805s&ab_channel=BoilerRoom
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
@@ -74,7 +76,6 @@ Katarakt: https://www.youtube.com/watch?v=mYyrK6PUsf8
 
 Traumprinz: https://www.youtube.com/watch?v=0smSZJlAZSY&ab_channel=GoldenSounds
 
-Eris Drew: https://www.youtube.com/watch?v=EDiN60ORcA0&t=1805s&ab_channel=BoilerRoom
 
 
 
