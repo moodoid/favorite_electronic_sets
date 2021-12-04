@@ -58,7 +58,7 @@ Moodymann: https://www.youtube.com/watch?v=iNLR-EMugb4&t=1458s&ab_channel=LucasM
 
 Omar S: https://www.youtube.com/watch?v=hhT8XIf2q1k&t=1372s&ab_channel=JONCASEYPRODUCTIONS
 
-Eris Drew: https://www.youtube.com/watch?v=EDiN60ORcA0&t=1805s&ab_channel=BoilerRoom
+Beige: https://www.youtube.com/watch?v=EDiN60ORcA0&t=1805s&ab_channel=BoilerRoom
 
 >**Techno / Dub Techno / Experimental Techno**
 
