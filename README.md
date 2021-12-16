@@ -26,6 +26,8 @@ Guy Gerber: https://www.youtube.com/watch?v=J0tGubH9ZyM&t=4392s&ab_channel=Boile
 
 LTJ Bukem: https://www.youtube.com/watch?v=hFgUSO6yXI4&ab_channel=LTJBukem
 
+Calibre: https://www.youtube.com/watch?v=nJ0HL2JSdqY&ab_channel=SeismicExcursions
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
