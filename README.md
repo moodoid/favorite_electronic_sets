@@ -22,8 +22,6 @@ A Guy Called Gerald: https://www.youtube.com/watch?v=rdk9a88sACs&t=1330s&ab_chan
 
 A Guy Called Gerald: https://www.youtube.com/watch?v=Av7LtWwdIME&ab_channel=OldSchoolMixTapes
 
-Guy Gerber: https://www.youtube.com/watch?v=J0tGubH9ZyM&t=4392s&ab_channel=BoilerRoom
-
 LTJ Bukem: https://www.youtube.com/watch?v=hFgUSO6yXI4&ab_channel=LTJBukem
 
 Calibre: https://www.youtube.com/watch?v=nJ0HL2JSdqY&ab_channel=SeismicExcursions
@@ -57,6 +55,8 @@ Laurent Garnier: https://www.youtube.com/watch?v=Bj8425Ma6F8&t=1650s&ab_channel=
 Moodymann: https://www.youtube.com/watch?v=L6VtOjkWeR8&t=3475s&ab_channel=ResidentAdvisor
 
 Moodymann: https://www.youtube.com/watch?v=HK683qBU8SU&t=642s&ab_channel=freddypogo
+
+Guy Gerber: https://www.youtube.com/watch?v=J0tGubH9ZyM&t=4392s&ab_channel=BoilerRoom
 
 Moodymann: https://www.youtube.com/watch?v=iNLR-EMugb4&t=1458s&ab_channel=LucasMusic
 
