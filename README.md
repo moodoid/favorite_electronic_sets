@@ -28,6 +28,8 @@ Calibre: https://www.youtube.com/watch?v=nJ0HL2JSdqY&ab_channel=SeismicExcursion
 
 Calibre: https://www.youtube.com/watch?v=CXWRVnfuShc&t=3584s&ab_channel=DopeNDisco
 
+Calibre: https://www.youtube.com/watch?v=q4xUcuiLg9I&t=634s
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
