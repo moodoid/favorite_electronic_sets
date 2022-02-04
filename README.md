@@ -32,6 +32,8 @@ Calibre: https://www.youtube.com/watch?v=q4xUcuiLg9I&t=634s
 
 LTJ Bukem: https://www.youtube.com/watch?v=Vw8-86OIwxQ&ab_channel=Ambiance
 
+LTJ Bukem: https://youtu.be/TUGrA6Q-ELM
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
