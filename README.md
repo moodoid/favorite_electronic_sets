@@ -34,6 +34,8 @@ LTJ Bukem: https://www.youtube.com/watch?v=Vw8-86OIwxQ&ab_channel=Ambiance
 
 LTJ Bukem: https://youtu.be/TUGrA6Q-ELM
 
+Peshay Studio: https://www.youtube.com/watch?v=JK8ilaPZbKE&ab_channel=Ambiance
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
