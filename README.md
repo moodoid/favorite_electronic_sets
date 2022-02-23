@@ -80,7 +80,7 @@ Jeff Mills, Jean-Phi Dary & Prabhu Edouard: https://www.youtube.com/watch?v=EahX
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
 
-Richie Hawtin & Ricardo Villalobos: https://www.youtube.com/watch?v=W2f1o-5aVEg&t=1611s&ab_channel=MPOMUSIC
+Richie Hawtin & Ricardo Villalobos: https://www.youtube.com/watch?v=5gvRZtTX95I&ab_channel=reArtemys
 
 Marc Houle: https://www.youtube.com/watch?v=af48Nbfsm9Y&t=3448s&ab_channel=Cercle
 
