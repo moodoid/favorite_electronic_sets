@@ -78,7 +78,7 @@ Kettama: https://www.youtube.com/watch?v=graKtuKgDZ4&ab_channel=Mixmag
 
 Jeff Mills, Jean-Phi Dary & Prabhu Edouard: https://www.youtube.com/watch?v=EahXXV0KlCY
 
-Dk Koco: https://www.youtube.com/watch?v=Yvi0AlMSv_U&ab_channel=BoilerRoom
+DJ Koco: https://www.youtube.com/watch?v=Yvi0AlMSv_U&ab_channel=BoilerRoom
 
 >**Techno / Dub Techno / Experimental Techno**
 
