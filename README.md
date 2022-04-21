@@ -80,6 +80,8 @@ Jeff Mills, Jean-Phi Dary & Prabhu Edouard: https://www.youtube.com/watch?v=EahX
 
 DJ Koco: https://www.youtube.com/watch?v=Yvi0AlMSv_U&ab_channel=BoilerRoom
 
+Derrick Carter: https://www.youtube.com/watch?v=AahI0K_YGqA&t=1766s&ab_channel=BoilerRoom
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
