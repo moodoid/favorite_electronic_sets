@@ -82,6 +82,8 @@ DJ Koco: https://www.youtube.com/watch?v=Yvi0AlMSv_U&ab_channel=BoilerRoom
 
 Derrick Carter: https://www.youtube.com/watch?v=AahI0K_YGqA&t=1766s&ab_channel=BoilerRoom
 
+Mayly & Lish: https://www.mixcloud.com/brixtonradiolive/lish-w-mayly-220422/
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
