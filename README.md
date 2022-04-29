@@ -104,5 +104,7 @@ Traumprinz (Tribute Mix): https://www.youtube.com/watch?v=0smSZJlAZSY&ab_channel
 
 Anfisa Letyago: https://www.youtube.com/watch?v=RJaV5BX-xpE&ab_channel=Cercle
 
+Holding Hands: https://soundcloud.com/holdinghandsrecords/sets/holding-hands-mix-series?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
+
 
 
