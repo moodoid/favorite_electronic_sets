@@ -90,7 +90,7 @@ Mayly & Lish: https://www.mixcloud.com/brixtonradiolive/lish-w-mayly-220422/
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
 
-Richie Hawtin & Ricardo Villalobos: https://www.youtube.com/watch?v=5gvRZtTX95I&ab_channel=reArtemys
+Richie Hawtin & Ricardo Villalobos: [https://www.youtube.com/watch?v=5gvRZtTX95I&ab_channel=reArtemys](https://www.youtube.com/watch?v=W2f1o-5aVEg&t=2386s&ab_channel=MPOMUSIC)
 
 Marc Houle: https://www.youtube.com/watch?v=af48Nbfsm9Y&t=3448s&ab_channel=Cercle
 
