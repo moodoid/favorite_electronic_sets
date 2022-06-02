@@ -86,6 +86,7 @@ Derrick Carter: https://www.youtube.com/watch?v=AahI0K_YGqA&t=1766s&ab_channel=B
 
 Mayly & Lish: https://www.mixcloud.com/brixtonradiolive/lish-w-mayly-220422/
 
+Apollonia: https://www.youtube.com/watch?v=XWDVGaJC0GU&ab_channel=MusicOnFestival
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
