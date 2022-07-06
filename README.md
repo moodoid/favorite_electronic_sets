@@ -40,8 +40,6 @@ DJ Perception: https://www.youtube.com/watch?v=WBWl3XIrPS8&ab_channel=MrFrederic
 
 LTJ Bukem: https://www.youtube.com/watch?v=A6B_pQqsUEw&ab_channel=UndergroundMusicFullAlbums
 
-Above & Beyond: https://www.youtube.com/watch?v=MEzU1HvBo6Y&t=1816s&ab_channel=Cercle
-
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
@@ -91,6 +89,8 @@ Mayly & Lish: https://www.mixcloud.com/brixtonradiolive/lish-w-mayly-220422/
 Random Rave Spot: https://www.youtube.com/watch?v=0dog5SzMSIA&ab_channel=r8448
 
 Apollonia: https://www.youtube.com/watch?v=XWDVGaJC0GU&ab_channel=MusicOnFestival
+
+Above & Beyond: https://www.youtube.com/watch?v=MEzU1HvBo6Y&t=1816s&ab_channel=Cercle
 
 >**Techno / Dub Techno / Experimental Techno**
 
