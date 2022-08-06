@@ -94,6 +94,8 @@ Above & Beyond: https://www.youtube.com/watch?v=MEzU1HvBo6Y&t=1816s&ab_channel=C
 
 Jeff Mills: https://www.youtube.com/watch?v=QfxhxOHU3jM&ab_channel=Nikola%C5%BDivi%C4%87
 
+Da Finko Dj: https://www.youtube.com/watch?v=GedKVsgtFK4&t=9255s&ab_channel=daFinkoDeejay
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
