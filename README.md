@@ -40,6 +40,8 @@ DJ Perception: https://www.youtube.com/watch?v=WBWl3XIrPS8&ab_channel=MrFrederic
 
 LTJ Bukem: https://www.youtube.com/watch?v=A6B_pQqsUEw&ab_channel=UndergroundMusicFullAlbums
 
+LTJ Bukem: https://www.youtube.com/watch?v=g-yttK9xwqs&ab_channel=LTJBukem
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
