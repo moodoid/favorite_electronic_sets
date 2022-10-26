@@ -44,6 +44,8 @@ LTJ Bukem: https://www.youtube.com/watch?v=g-yttK9xwqs&ab_channel=LTJBukem
 
 DJ Marky: https://www.youtube.com/watch?v=BzpRu83Z7UM&t=2528s&ab_channel=BoilerRoom
 
+DJ Marky: https://www.youtube.com/watch?v=Gxuvgd5npsQ&ab_channel=erwinorb
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
