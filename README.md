@@ -110,6 +110,8 @@ AceMo: https://www.youtube.com/watch?v=uAshkhjKG7Y&ab_channel=BoilerRoom
 
 Hot Since 82 & Ben Rau: https://www.youtube.com/watch?v=Tfafk0Iwh5g&ab_channel=HotSince82
 
+Motorbass: https://www.youtube.com/watch?v=ZTFZqMSlf2g&t=1399s&ab_channel=Baptiste
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
