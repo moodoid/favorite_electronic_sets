@@ -112,6 +112,8 @@ Hot Since 82 & Ben Rau: https://www.youtube.com/watch?v=Tfafk0Iwh5g&ab_channel=H
 
 Motorbass: https://www.youtube.com/watch?v=ZTFZqMSlf2g&t=1399s&ab_channel=Baptiste
 
+Eris Drew: https://www.youtube.com/watch?v=bq02Ch0fpNM&ab_channel=BoilerRoom
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
