@@ -34,6 +34,8 @@ LTJ Bukem: https://www.youtube.com/watch?v=Vw8-86OIwxQ&ab_channel=Ambiance
 
 LTJ Bukem: https://youtu.be/TUGrA6Q-ELM
 
+LTJ Bukem: https://www.youtube.com/watch?v=1lhuX3QOgQI&t=15s&ab_channel=MrFredericks.
+
 Peshay Studio: https://www.youtube.com/watch?v=JK8ilaPZbKE&ab_channel=Ambiance
 
 DJ Perception: https://www.youtube.com/watch?v=WBWl3XIrPS8&ab_channel=MrFredericks
