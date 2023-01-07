@@ -110,7 +110,7 @@ Da Finko Dj: https://www.youtube.com/watch?v=GedKVsgtFK4&t=9255s&ab_channel=daFi
 
 AceMo: https://www.youtube.com/watch?v=uAshkhjKG7Y&ab_channel=BoilerRoom
 
-Hot Since 82 & Ben Rau: https://www.youtube.com/watch?v=Tfafk0Iwh5g&ab_channel=HotSince82
+Hot Since '82 & Ben Rau: https://www.youtube.com/watch?v=Tfafk0Iwh5g&t=636s&ab_channel=HotSince82
 
 Motorbass: https://www.youtube.com/watch?v=ZTFZqMSlf2g&t=1399s&ab_channel=Baptiste
 
@@ -119,8 +119,6 @@ Eris Drew: https://www.youtube.com/watch?v=bq02Ch0fpNM&ab_channel=BoilerRoom
 Les Sins: https://www.youtube.com/watch?v=JfLoyoM7BlE&ab_channel=BoilerRoom
 
 Luke Vibert: https://www.youtube.com/watch?v=_Bk43oibIek&t=1892s&ab_channel=BoilerRoom
-
-Hot Since '82 & Ben Rau: https://www.youtube.com/watch?v=Tfafk0Iwh5g&t=636s&ab_channel=HotSince82
 
 >**Techno / Dub Techno / Experimental Techno**
 
