@@ -120,6 +120,8 @@ Les Sins: https://www.youtube.com/watch?v=JfLoyoM7BlE&ab_channel=BoilerRoom
 
 Luke Vibert: https://www.youtube.com/watch?v=_Bk43oibIek&t=1892s&ab_channel=BoilerRoom
 
+Hot Since '82 & Ben Rau: https://www.youtube.com/watch?v=Tfafk0Iwh5g&t=636s&ab_channel=HotSince82
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
