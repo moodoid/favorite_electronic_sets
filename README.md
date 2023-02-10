@@ -122,6 +122,8 @@ Luke Vibert: https://www.youtube.com/watch?v=_Bk43oibIek&t=1892s&ab_channel=Boil
 
 Kerri Chandler & Chez Damier: https://www.youtube.com/watch?v=YcSIhUm-XC0&t=2463s&ab_channel=Mixmag
 
+Daniel Orpi: https://www.youtube.com/watch?v=1x5aWbdDXHI&ab_channel=DanielOrpi
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
