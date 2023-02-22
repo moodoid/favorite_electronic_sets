@@ -50,6 +50,8 @@ DJ Marky: https://www.youtube.com/watch?v=Gxuvgd5npsQ&ab_channel=erwinorb
 
 Roni Size & Krust: https://www.youtube.com/watch?v=190elMZ5DlQ&t=1511s&ab_channel=silverdrizzle
 
+Ludmila Di Pasquale: https://www.youtube.com/watch?v=elxQZiSUT3A&ab_channel=DetroitClassicGallery
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
