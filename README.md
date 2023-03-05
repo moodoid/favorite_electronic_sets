@@ -92,8 +92,6 @@ Beige: https://www.youtube.com/watch?v=EDiN60ORcA0&t=1805s&ab_channel=BoilerRoom
 
 Kettama: https://www.youtube.com/watch?v=graKtuKgDZ4&ab_channel=Mixmag
 
-Jeff Mills, Jean-Phi Dary & Prabhu Edouard: https://www.youtube.com/watch?v=EahXXV0KlCY
-
 DJ Koco: https://www.youtube.com/watch?v=Yvi0AlMSv_U&ab_channel=BoilerRoom
 
 Derrick Carter: https://www.youtube.com/watch?v=AahI0K_YGqA&t=1766s&ab_channel=BoilerRoom
@@ -148,5 +146,10 @@ Anfisa Letyago: https://www.youtube.com/watch?v=RJaV5BX-xpE&ab_channel=Cercle
 
 Bolam: https://soundcloud.com/holdinghandsrecords/sets/holding-hands-mix-series?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
 
+>**Misc:
+
+Jacques: https://www.youtube.com/watch?v=tXYHHiIur-A&t=3099s&ab_channel=BateauMusic
+
+Jeff Mills, Jean-Phi Dary & Prabhu Edouard: https://www.youtube.com/watch?v=EahXXV0KlCY
 
 
