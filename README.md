@@ -50,8 +50,6 @@ DJ Marky: https://www.youtube.com/watch?v=Gxuvgd5npsQ&ab_channel=erwinorb
 
 Roni Size & Krust: https://www.youtube.com/watch?v=190elMZ5DlQ&t=1511s&ab_channel=silverdrizzle
 
-Ludmila Di Pasquale: https://www.youtube.com/watch?v=elxQZiSUT3A&ab_channel=DetroitClassicGallery
-
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
@@ -123,6 +121,8 @@ Luke Vibert: https://www.youtube.com/watch?v=_Bk43oibIek&t=1892s&ab_channel=Boil
 Kerri Chandler & Chez Damier: https://www.youtube.com/watch?v=YcSIhUm-XC0&t=2463s&ab_channel=Mixmag
 
 Daniel Orpi: https://www.youtube.com/watch?v=1x5aWbdDXHI&ab_channel=DanielOrpi
+
+Ludmila Di Pasquale: https://www.youtube.com/watch?v=elxQZiSUT3A&ab_channel=DetroitClassicGallery
 
 >**Techno / Dub Techno / Experimental Techno**
 
