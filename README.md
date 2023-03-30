@@ -154,4 +154,6 @@ Jacques: https://www.youtube.com/watch?v=tXYHHiIur-A&t=3099s&ab_channel=BateauMu
 
 Jeff Mills, Jean-Phi Dary & Prabhu Edouard: https://www.youtube.com/watch?v=EahXXV0KlCY
 
+Luke Vibert: https://www.youtube.com/watch?v=UNMGa6Goxdg&t=2226s&ab_channel=Dodecaedrum
+
 
