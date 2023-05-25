@@ -126,6 +126,8 @@ Daniel Orpi: https://www.youtube.com/watch?v=1x5aWbdDXHI&ab_channel=DanielOrpi
 
 Ludmila Di Pasquale: https://www.youtube.com/watch?v=elxQZiSUT3A&ab_channel=DetroitClassicGallery
 
+Mayly: https://soundcloud.com/mayly_uk/001a?si=c498bcec740e4cf780ec39de38928dcd&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
