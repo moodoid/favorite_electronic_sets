@@ -168,4 +168,6 @@ Luke Vibert: https://www.youtube.com/watch?v=UNMGa6Goxdg&t=2226s&ab_channel=Dode
 
 Luke Vibert: https://www.youtube.com/watch?v=L_wEY-nFI_A&ab_channel=Dodecaedrum
 
+Nicolas Jaar: https://www.youtube.com/watch?v=2h1h1JdaWGk&t=2930s&ab_channel=AlessandroStradivari
+
 
