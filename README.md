@@ -172,4 +172,6 @@ Luke Vibert: https://www.youtube.com/watch?v=L_wEY-nFI_A&ab_channel=Dodecaedrum
 
 Nicolas Jaar: https://www.youtube.com/watch?v=2h1h1JdaWGk&t=2930s&ab_channel=AlessandroStradivari
 
+Giles Peterson: https://www.youtube.com/watch?v=tSpMfUQXLNc&ab_channel=virozir
+
 
