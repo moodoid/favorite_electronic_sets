@@ -54,6 +54,8 @@ LTJ Bukem & MC Conrad: https://www.youtube.com/watch?v=_5G3btzKJmY&ab_channel=dr
 
 Commix: https://www.youtube.com/watch?v=ufgqRwZVujE&ab_channel=Metalheadz
 
+Mickey Finn & MC Navigator: https://www.youtube.com/watch?v=tWY9UTD8L6M&t=1089s&ab_channel=OneInTheJungle2013
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
