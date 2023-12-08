@@ -144,6 +144,10 @@ Max Graef & Wayne Snow: https://soundcloud.com/platform/maxgraef-kickflipmike
 
 Moodymann & Charles Webster: https://www.youtube.com/watch?v=4FF8F67ZtBs&ab_channel=Cello%26Ciccio
 
+DJ Heartstring: https://www.youtube.com/watch?v=2bycyIwD9fQ&ab_channel=Partiboi69
+
+Mayly: https://soundcloud.com/mayly_uk/003a-1
+
 >**Techno / Dub Techno / Experimental Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
@@ -167,6 +171,8 @@ Anfisa Letyago: https://www.youtube.com/watch?v=RJaV5BX-xpE&ab_channel=Cercle
 Bolam: https://soundcloud.com/holdinghandsrecords/sets/holding-hands-mix-series?utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing
 
 E110101: https://www.youtube.com/watch?v=lHGPQbz7COw&ab_channel=DetroitClassicGallery
+
+
 
 > **Misc:
 
