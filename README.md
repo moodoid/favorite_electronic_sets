@@ -152,6 +152,7 @@ Nicolas Jaar & Pulse: https://www.youtube.com/watch?v=411r5LekD4M&ab_channel=Pul
 
 Ludmila Di Pasquale: https://www.youtube.com/watch?v=v0b5eVPDgs0&ab_channel=LudmilaDiPasquale
 
+Channel Tres: https://www.youtube.com/watch?v=q78x5w49nfw&ab_channel=BoilerRoom
 
 >**Techno / Dub Techno / Experimental Techno**
 
