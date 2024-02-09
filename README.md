@@ -155,7 +155,8 @@ Ludmila Di Pasquale: https://www.youtube.com/watch?v=v0b5eVPDgs0&ab_channel=Ludm
 Channel Tres: https://www.youtube.com/watch?v=q78x5w49nfw&ab_channel=BoilerRoom
 
 Ludmilla Di Pasquale: https://www.youtube.com/watch?v=d78hLPsPhWw&ab_channel=LudmilaDiPasquale
->**Techno / Dub Techno / Experimental Techno**
+
+>**Techno / Dub Techno / Experimental Techno / Ghetto Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
 
@@ -180,6 +181,8 @@ Bolam: https://soundcloud.com/holdinghandsrecords/sets/holding-hands-mix-series?
 E110101: https://www.youtube.com/watch?v=lHGPQbz7COw&ab_channel=DetroitClassicGallery
 
 Joris Voorn: https://www.youtube.com/watch?v=c47eVXQSRrk&ab_channel=JorisVoorn
+
+Partiboi69 & KIINK: https://www.youtube.com/watch?v=N0u2kK11Pzc&t=5003s&ab_channel=Partiboi69
 
 > **Misc:
 
