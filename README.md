@@ -186,6 +186,8 @@ Partiboi69 & KIINK: https://www.youtube.com/watch?v=N0u2kK11Pzc&t=5003s&ab_chann
 
 Estella Boersma: https://youtu.be/HSeGs1PgHdo?si=KaVSiFofZvjfD2XB
 
+KINK: https://www.youtube.com/watch?v=cmGySEYDMMQ&ab_channel=ARTEConcert
+
 > **Misc:
 
 Jacques: https://www.youtube.com/watch?v=tXYHHiIur-A&t=3099s&ab_channel=BateauMusic
