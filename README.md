@@ -60,6 +60,8 @@ Plug (Luke Vibert): https://www.youtube.com/watch?v=-7c11kEd8AA&ab_channel=heyba
 
 Alex Reece: https://www.youtube.com/watch?v=dbx3B5atybQ&t=4774s&ab_channel=OneInTheJungle2013
 
+Kenny Ken: https://www.youtube.com/watch?v=dmI6u1voxwI&ab_channel=OneInTheJungle2013
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
