@@ -162,6 +162,8 @@ Channel Tres: https://www.youtube.com/watch?v=q78x5w49nfw&ab_channel=BoilerRoom
 
 Ludmilla Di Pasquale: https://www.youtube.com/watch?v=d78hLPsPhWw&ab_channel=LudmilaDiPasquale
 
+Raresh & Ricardo Villalobos: https://www.youtube.com/watch?v=2_4Ca3Uld9I&ab_channel=Alek
+
 >**Techno / Dub Techno / Experimental Techno / Ghetto Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
