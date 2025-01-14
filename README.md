@@ -62,6 +62,8 @@ Alex Reece: https://www.youtube.com/watch?v=dbx3B5atybQ&t=4774s&ab_channel=OneIn
 
 Kenny Ken: https://www.youtube.com/watch?v=dmI6u1voxwI&ab_channel=OneInTheJungle2013
 
+[mystery]: https://www.youtube.com/watch?v=MllSubrMrmo&ab_channel=%5Bmystery%5D
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
