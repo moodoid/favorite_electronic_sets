@@ -62,7 +62,7 @@ Alex Reece: https://www.youtube.com/watch?v=dbx3B5atybQ&t=4774s&ab_channel=OneIn
 
 Kenny Ken: https://www.youtube.com/watch?v=dmI6u1voxwI&ab_channel=OneInTheJungle2013
 
-[mystery]: https://www.youtube.com/watch?v=MllSubrMrmo&ab_channel=%5Bmystery%5D
+mystery: https://www.youtube.com/watch?v=MllSubrMrmo&ab_channel=%5Bmystery%5D
 
 > **Tech House / House / Lofi-House / Acid House**
 
