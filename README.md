@@ -176,6 +176,8 @@ Andrey Pushkarev: https://www.youtube.com/watch?v=c-jllJX3SZM
 
 Mihai Popovicui: https://www.youtube.com/watch?v=SeKCJ16qwjM
 
+Partiboi69 B2B Lood: https://www.youtube.com/watch?v=I5Sautsr_X8
+
 >**Techno / Dub Techno / Experimental Techno / Ghetto Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
