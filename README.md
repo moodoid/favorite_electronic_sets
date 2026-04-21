@@ -180,6 +180,8 @@ Partiboi69 B2B Lood: https://www.youtube.com/watch?v=I5Sautsr_X8
 
 Chloe Caillet: https://www.youtube.com/watch?v=IdKyaoPvW5w
 
+Guido Sartoris: https://www.youtube.com/watch?v=LQXpFPp-3BA
+
 >**Techno / Dub Techno / Experimental Techno / Ghetto Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
