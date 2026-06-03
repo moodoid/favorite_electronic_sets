@@ -216,6 +216,8 @@ KINK: https://www.youtube.com/watch?v=cmGySEYDMMQ&ab_channel=ARTEConcert
 
 Forest Drive West: https://www.youtube.com/watch?v=Sn5WIcrQGA0&ab_channel=Faint.Static
 
+Deetron: https://www.youtube.com/watch?v=cRiBvECIXug&t=6466s
+
 > **Misc:
 
 Jacques: https://www.youtube.com/watch?v=tXYHHiIur-A&t=3099s&ab_channel=BateauMusic
