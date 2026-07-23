@@ -66,6 +66,8 @@ mystery: https://www.youtube.com/watch?v=MllSubrMrmo&ab_channel=%5Bmystery%5D
 
 Calibre (ShelfLife): https://www.youtube.com/watch?v=bKWRyEpjTps&ab_channel=RichMusique
 
+DJ Marky: https://www.youtube.com/watch?v=Ga58jgXmrB0
+
 > **Tech House / House / Lofi-House / Acid House**
 
 Frankie Knuckles: https://www.youtube.com/watch?v=L-JwoeXqd4c&t=2640s&ab_channel=LinartasTuomas
