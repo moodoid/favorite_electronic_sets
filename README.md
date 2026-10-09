@@ -186,6 +186,8 @@ Guido Sartoris: https://www.youtube.com/watch?v=LQXpFPp-3BA
 
 DJ Marky: https://www.youtube.com/watch?v=dZP3LdQVI3c
 
+Hot Since 82: https://www.youtube.com/watch?v=_wfwSaA5GeE&t=7041s
+
 >**Techno / Dub Techno / Experimental Techno / Ghetto Techno**
 
 Nina Kraviz: https://www.youtube.com/watch?v=zS6Gx6seFGc&t=4403s&ab_channel=ARTEConcert
